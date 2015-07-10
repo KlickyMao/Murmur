@@ -8,6 +8,7 @@
 
 `理性分析类`
 ![undefined](http://meitif.qortex.cn/files/HJKh8LyAgy@!main-article)
+
 `调侃类`
 ![undefined](http://meitif.qortex.cn/files/9u6KTdy2QB@!main-article)
 
